@@ -116,7 +116,7 @@ Passionate blockchain developer with 19+ hackathon wins globally. Selected among
 
 ## 📞 Contact
 
-For inquiries, please contact us at info@corecade.io
+For inquiries, please contact us at tanishq@corecade.games
 
 **Official Links**
 - Website:
